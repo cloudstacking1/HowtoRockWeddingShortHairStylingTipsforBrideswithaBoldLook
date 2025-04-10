@@ -1,0 +1,2 @@
+# HowtoRockWeddingShortHairStylingTipsforBrideswithaBoldLook
+HowtoRockWeddingShortHairStylingTipsforBrideswithaBoldLook
